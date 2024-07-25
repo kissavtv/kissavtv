@@ -20,10 +20,7 @@ https://t.me/kissavtv
 🤝 商务合作🤝请电报（Tg）联系：
 https://t.me/LiYunLong358
 
-分享KISSAV内容，请告知好友，复制网址用浏览器打开！ 每一个视频分享都是我们创作的心血，而你的分享是我们更新的动力。 分享给身边有需要的人 ，一切只为了让你的娱乐生活更加精彩。
-![image](https://github.com/user-attachments/assets/b88787e5-7051-4805-8049-f8ae64ca9f7b)
-
-
+分享KISSAV内容，请告知好友，复制网址用浏览器打开！ 每一个视频分享都是我们创作的心血，而你的分享是我们更新的动力。 分享给身边有需要的人 ，一切只为了让你的娱乐生活更加精彩.
 <!---
 kissavtv/kissavtv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
